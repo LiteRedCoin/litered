@@ -26,4 +26,4 @@ Discord - https://discord.gg/8auBNE6XGa
 
 Twitter - https://twitter.com/LiteRedCoin
 
-Exchange - Coming soon!
+Exchanges - https://exchange-assets.com , https://bimex.live , https://xeggex.com
